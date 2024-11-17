@@ -1,0 +1,1 @@
+ko re ha i tai nan da ro?
